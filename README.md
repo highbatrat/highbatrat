@@ -1,16 +1,26 @@
-## Hi there 👋
+![image](https://github.com/user-attachments/assets/72a7e380-f97f-47d2-bc9e-261e50f7d239)
+<< 𝐑𝐢𝐝𝐝𝐥𝐞 𝐌𝐞 𝐓𝐡𝐢𝐬, 𝐖𝐡𝐚𝐭'𝐬 𝐃𝐞𝐚𝐝? 𝐘𝐨𝐮! < ? >
 
-<!--
-**highbatrat/highbatrat** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+----------------
 
-Here are some ideas to get you started:
+<< 𝚃𝚞𝚛𝚗𝚒𝚗𝚐 𝚂𝚎𝚟𝚎𝚗𝚝𝚎𝚎𝚗 𝚃𝚑𝚒𝚜 𝚈𝚎𝚊𝚛!!
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+𝙲𝚘𝚖𝚙𝚞𝚝𝚎𝚛 𝚌𝚘𝚖𝚙𝚞𝚝𝚎𝚛?! 𝙸𝚝 𝚒𝚜 𝙸...
+
+𝚈𝚘𝚞𝚛 𝚖𝚊𝚜𝚝𝚎𝚛!🤓☝
+
+𝐖𝐨𝐫𝐤𝐢𝐧𝐠 𝐎𝐧 𝐌𝐲 𝐀𝐭𝐚𝐛𝐨𝐨𝐤!
+
+![image](https://github.com/user-attachments/assets/f923e7ac-be46-4141-8db8-a3e5e3ff7120)
+
+<< 𝙸'𝚖 𝙰 𝙱𝚒𝚐 𝙵𝚊𝚗 𝙾𝚏 𝙼𝚘𝚜𝚝 𝙾𝚏 𝚃𝚑𝚎 𝚁𝚒𝚍𝚍𝚕𝚎𝚛 𝚅𝚎𝚛𝚜𝚒𝚘𝚗𝚜,
+
+𝚃𝚑𝚘𝚞𝚐𝚑 𝚖𝚢 𝚏𝚊𝚟 𝚊𝚝𝚖 𝚒𝚜 𝚍𝚎𝚏 𝙿𝚊𝚞𝚕 𝙳𝚊𝚗𝚘'𝚜 𝚟𝚎𝚛𝚜𝚒𝚘𝚗!
+
+(⭐𝚁𝚎𝚊𝚍𝚒𝚗𝚐 𝚃𝚑𝚎 𝙲𝚘𝚖𝚒𝚌 𝚁𝚗)
+
+--------------------------
+
+𝐘𝐨𝐮 𝐖𝐢𝐥𝐥 𝐌𝐚𝐢𝐧𝐥𝐲 𝐒𝐞𝐞 𝐌𝐞 𝐀𝐬 𝐁𝐫𝐮𝐜𝐞 𝐎𝐫 𝐄𝐝𝐰𝐚𝐫𝐝 !!
+
+![image](https://github.com/user-attachments/assets/5274affb-9f71-4229-a456-1692a1fa2d8f)
